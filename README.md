@@ -1,6 +1,1 @@
-# Shanukeer
-I am a hardworker 
-developer
-tech
-eng
-driver
+121@1212snkds$nklszn n kzm
